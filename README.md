@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @charanccherry (P.Sai Charan Kumar)
 - 👀 I’m interested in Full Stack Developer Roles
-- 🌱 I’m currently learning Python, HTML, CSS, JavaScript.
+- 🌱 Programming Skills : Python, HTML, CSS, JavaScript, Node.js, React.js.
 - 📫 How to reach me 8099-995-329 or https://www.linkedin.com/in/p-sai-charan-kumar-193660150/ 
 
 <!---
