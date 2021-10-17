@@ -20,6 +20,5 @@ Seeking opportunities for full time to establish me as a prominent professional 
 Let's get connected!
 
 Charan
-❇️ Phone: +91 7780-155-002
 ❇️ Email: charanccherry1996@gmail.com
 📫 https://www.linkedin.com/in/p-sai-charan-kumar-193660150/ 
